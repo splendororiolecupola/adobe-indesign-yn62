@@ -1,4 +1,4 @@
-# 
+# instant Affinity Photo for PC tools is the best Affinity Photo for PC tools with HDR-editing and scripting. Safe, reliable, and optimized for maximum performance.
 
 
 
